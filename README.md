@@ -17,4 +17,6 @@
 	- [jiwon8297@gmail.com](mailto:jiwon8297@gmail.com "mailto:jiwon8297@gmail.com")
 	- [xtmono@gmail.com](mailto:xtmono@gmail.com "mailto:xtmono@gmail.com")
 	- [kkg4547@naver.com](mailto:kkg4547@naver.com "mailto:kkg4547@naver.com")
+	- [skekdnzm1994@gmail.com](mailto:skekdnzm1994@gmail.com "mailto:skekdnzm1994@gmail.com")
+
 
