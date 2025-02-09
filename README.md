@@ -16,4 +16,5 @@
 - 새로운 아이디어나 개선 사항이 있다면 언제든지 공유해주세요.
 	- [jiwon8297@gmail.com](mailto:jiwon8297@gmail.com "mailto:jiwon8297@gmail.com")
 	- [xtmono@gmail.com](mailto:xtmono@gmail.com "mailto:xtmono@gmail.com")
+	- [kkg4547@naver.com](mailto:kkg4547@naver.com "mailto:kkg4547@naver.com")
 
