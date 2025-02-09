@@ -1,4 +1,4 @@
-# 📂 Welcome to My Obsidian Vault
+# 📂 Welcome to Our Obsidian Vault
 
 **"우리가 알고 있는 것들은 사실 대부분 혼자만의 노력으로 얻어진 게 아니다."** 
 
